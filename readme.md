@@ -8,7 +8,11 @@
 
 另：如想用本项目发表论文或者毕设等，均需经过本人同意并且有偿或挂名，否则将会举报！
 
+联系方式：wechat:y24065939s
 
+E-mail:15930920977@163.com
+
+CSDN:https://blog.csdn.net/z240626191s/article/details/131275527?spm=1001.2014.3001.5502
 
 <img src="img.jpg" alt="image" style="zoom:33%;" />
 
